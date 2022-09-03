@@ -11,5 +11,5 @@ Laboratornaya1
 >How dare you? How dare you all? You stand here and decide my future for me! By the way, I'm not the prize that goes to someone out there!
 ©Princess Jasmine
 ### Сontact with me: 
-1. **Link to Vk:** [https://vk.com/naaastyushik]
-2. **Link to Twitter:** [https://twitter.com/__nastyushik]
+1. [**Link to Vk:**](https://vk.com/naaastyushik)
+2. [**Link to Twitter:**](https://twitter.com/__nastyushik)
